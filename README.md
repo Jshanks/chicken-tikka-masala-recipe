@@ -31,7 +31,7 @@ This is one of my favorite dishes, and a lot of people who eat this tell me it's
 - 1/2 - 1 teaspoon teaspoon Kashmiri chili (or ground red chili powder)
 - 1 teaspoon salt
 - 1 1/4 cups of heavy or thickened cream
-- 2 teaspoon brown sugar
+- 3 teaspoons brown sugar
 - 1/4 cup water if needed
 
 ## Instructions ℹ️
