@@ -52,7 +52,7 @@ This is one of my favorite dishes, and a lot of people who eat this tell me it's
 - Add chicken tikka masala seasoning, chili powder, salt, tomatoes, tomato sauce, and methi leaves. Let this simmer until the tomatoes start to break down.
 
 - Once the tomatoes are breaking down, use a masher to crush the tomatoes and onions into a paste / sauce with no large pieces left
-    -(optional) let the gravy cool slightly, and then use a blender for a creamier consistency. add the gravy back to the pot before adding the heavy cream.
+    - (optional) let the gravy cool slightly, and then use a blender for a creamier consistency. add the gravy back to the pot before adding the heavy cream.
 
 - Add the heavy cream and the brown sugar, stirring everything in.
 
