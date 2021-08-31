@@ -16,7 +16,6 @@ This is one of my favorite dishes, and a lot of people who eat this tell me it's
 - 1/2 - 3/4 teaspoon Kashmiri chili
 - 1 teaspoon of salt
 - 3 tablespoons butter/ghee for sauteing / cooking the chicken
-- a pinch or two of dried methi leaves
 
 ### Sauce 🍲
 
@@ -26,13 +25,13 @@ This is one of my favorite dishes, and a lot of people who eat this tell me it's
 - 1 1/2 tablespoon ginger finely grated
 - 1 1/2 - 2 tablespoons chicken tikka masala seasoning (MDH or shan brand)
 - 12-14 oz  tomato puree / tomato sauce / crushed tomatoes
-- 2 medium fresh tomatoes diced
-- 2 - 3 tablespoons tomato paste
+- 2 medium vine-ripened tomatoes - diced
+- 2  tablespoons tomato paste
 - 1/2 - 1 teaspoon teaspoon Kashmiri chili (or ground red chili powder)
 - 1 teaspoon salt
 - 1 1/4 cups of heavy or thickened cream
 - 3 teaspoons brown sugar
-- 1/4 cup water if needed
+- a pinch or two of dried methi leaves
 
 ## Instructions ℹ️
 
@@ -40,8 +39,7 @@ This is one of my favorite dishes, and a lot of people who eat this tell me it's
 
 - Put the chicken in a bowl with all of the ingredients of the chicken marinade, stir everything together well and let it sit for 10 minutes to a few hours
 
-- When ready to cook: in a frying pan, add butter and saute the chicken until it is fully cooked and browned on each side. Set to the side until later.
-    - alternatively, pre-heat a cast iron skillet in the oven under the broiler, and cook the chicken thighs under the broiler once the pan is hot. ~15-20 minutes.
+- When ready to cook: pre-heat a cast iron skillet in the oven under the broiler, and cook the chicken thighs under the broiler once the pan is hot. ~15-20 minutes.
 
 ### The gravy (Masala) 🥣
 
@@ -51,8 +49,7 @@ This is one of my favorite dishes, and a lot of people who eat this tell me it's
 
 - Add chicken tikka masala seasoning, chili powder, salt, tomatoes, tomato sauce, and methi leaves. Let this simmer until the tomatoes start to break down.
 
-- Once the tomatoes are breaking down, use a masher to crush the tomatoes and onions into a paste / sauce with no large pieces left
-    - (optional) let the gravy cool slightly, and then use a blender for a creamier consistency. add the gravy back to the pot before adding the heavy cream.
+- Once the tomatoes are breaking down, let the gravy cool slightly, and then use a blender for a creamier consistency. add the gravy back to the pot before adding the heavy cream.
 
 - Add the heavy cream and the brown sugar, stirring everything in.
 
