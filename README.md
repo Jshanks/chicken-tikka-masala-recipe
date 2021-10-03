@@ -8,12 +8,12 @@ This is one of my favorite dishes, and a lot of people who eat this tell me it's
 
 ### Chicken marinade 🐔
 
-- 28 oz boneless and skinless chicken thighs
+- 2 lbs boneless and skinless chicken thighs
 - 1 cup plain yogurt
 - 1 1/2 tablespoons minced garlic
 - 1 teaspoon minced fresh ginger
 - 3.5 teaspoons chicken tikka masala seasoning ([MDH](https://mdhspices.com/product/mdh-chicken-masala/), [Shan](https://www.shanfoods.com/product/recipe-mixes/curry/chicken-masala/), or [Rasoi Magic](https://www.rasoimagic.com/products) brand) 
-- 1/2 - 3/4 teaspoon Kashmiri chili
+- 1/2 teaspoon Kashmiri chili powder
 - 1 teaspoon of salt
 - 3 tablespoons butter/ghee for sauteing / cooking the chicken
 
@@ -21,15 +21,15 @@ This is one of my favorite dishes, and a lot of people who eat this tell me it's
 
 - 5-8 tablespoons butter\ghee
 - 2 medium white onions finely diced
-- 1 1/2 tablespoons garlic finely grated
-- 1 1/2 tablespoon ginger finely grated
-- 1 1/2 - 2 tablespoons chicken tikka masala seasoning (MDH or shan brand)
+- 2 tablespoons garlic finely grated
+- 2 tablespoons ginger finely grated
+- 2 tablespoons chicken tikka masala seasoning (MDH or shan brand)
 - 12-14 oz  tomato puree / tomato sauce / crushed tomatoes
 - 2 medium vine-ripened tomatoes - diced
 - 2  tablespoons tomato paste
-- 1/2 - 1 teaspoon teaspoon Kashmiri chili (or ground red chili powder)
+- 1/2 teaspoon Kashmiri chili powder
 - 1 teaspoon salt
-- 1 1/4 cups of heavy or thickened cream
+- 1 pint of heavy or thickened cream
 - 3 teaspoons brown sugar
 - a pinch or two of dried methi leaves
 
