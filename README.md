@@ -20,18 +20,18 @@ This is one of my favorite dishes, and a lot of people who eat this tell me it's
 ### Sauce 🍲
 
 - 5-8 tablespoons butter\ghee
-- 2 medium white onions finely diced
-- 2 tablespoons garlic finely grated
-- 2 tablespoons ginger finely grated
-- 2 tablespoons chicken tikka masala seasoning (MDH or shan brand)
+- 2 medium white onions, diced
+- 1 1/2 tablespoons garlic finely grated
+- 2 1/2 tablespoons ginger finely grated
+- 2 tablespoons chicken masala seasoning (MDH or shan brand)
 - 12-14 oz  tomato puree / tomato sauce / crushed tomatoes
-- 2 medium vine-ripened tomatoes - diced
-- 2  tablespoons tomato paste
+- 2 medium vine-ripened tomatoes, diced
+- 2 tablespoons tomato paste
 - 1/2 teaspoon Kashmiri chili powder
 - 1 teaspoon salt
 - 1 pint of heavy or thickened cream
 - 3 teaspoons brown sugar
-- a pinch or two of dried methi leaves
+- 2 to 3 pinches of dried methi leaves
 
 ## Instructions ℹ️
 
@@ -47,12 +47,12 @@ This is one of my favorite dishes, and a lot of people who eat this tell me it's
 
 - Add ginger, garlic, and tomato paste and let cook for just about 30 seconds while continuing to stir. 
 
-- Add chicken tikka masala seasoning, chili powder, salt, tomatoes, tomato sauce, and methi leaves. Let this simmer until the tomatoes start to break down.
+- Add chicken tikka masala seasoning, chili powder, salt, tomatoes, tomato sauce, brown sugar and methi leaves. Let this simmer until the tomatoes start to break down.
 
 - Once the tomatoes are breaking down, let the gravy cool slightly, and then use a blender for a creamier consistency. add the gravy back to the pot before adding the heavy cream.
 
-- Add the heavy cream and the brown sugar, stirring everything in.
+- Add the heavy cream, stirring everything in.
 
 - Finally, add the chicken and let it simmer for 5 - 10 minutes. From here, check the consistency and decide to your taste to add more cream or water.
 
-Serve with butter rice or naan bread. 🚀
+Serve with rice, naan, or roti. 🚀
