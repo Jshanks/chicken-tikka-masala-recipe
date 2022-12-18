@@ -21,8 +21,8 @@ This is one of my favorite dishes, and a lot of people who eat this tell me it's
 
 - 5-8 tablespoons butter\ghee
 - 2 medium white onions, diced
-- 1 1/2 tablespoons garlic finely grated
-- 2 1/2 tablespoons ginger finely grated
+- 3 tablespoons garlic finely grated
+- 3 1/2 tablespoons ginger finely grated
 - 2 tablespoons chicken masala seasoning (MDH or shan brand)
 - 12-14 oz  tomato puree / tomato sauce / crushed tomatoes
 - 2 medium vine-ripened tomatoes, diced
