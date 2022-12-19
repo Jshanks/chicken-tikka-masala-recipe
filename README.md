@@ -11,7 +11,7 @@ This is one of my favorite dishes, and a lot of people who eat this tell me it's
 - 2 lbs boneless and skinless chicken thighs
 - 1 cup plain yogurt
 - 1 1/2 tablespoons minced garlic
-- 1 teaspoon minced fresh ginger
+- 1 tablespoon minced fresh ginger
 - 3.5 teaspoons chicken tikka masala seasoning ([MDH](https://mdhspices.com/product/mdh-chicken-masala/), [Shan](https://www.shanfoods.com/product/recipe-mixes/curry/chicken-masala/), or [Rasoi Magic](https://www.rasoimagic.com/products) brand) 
 - 1/2 teaspoon Kashmiri chili powder
 - 1 teaspoon of salt
