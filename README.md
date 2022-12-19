@@ -48,7 +48,7 @@ This is one of my favorite dishes, and a lot of people who eat this tell me it's
 
 - Add ginger, garlic, and tomato paste and let cook for just about 30 seconds while continuing to stir. 
 
-- Add chicken tikka masala seasoning, kashmiri chili powder, salt, tomatoes with the liquid, brown sugar and methi leaves. Let this simmer for a bit - 20-30 minutes.
+- Add chicken tikka masala seasoning, kashmiri chili powder, salt, tomatoes without the liquid, brown sugar and methi leaves. Let this simmer for a bit - 20-30 minutes.
 
 - Add ingredients from the pot into a blender, blending until everything is pretty well incorporated.
 
